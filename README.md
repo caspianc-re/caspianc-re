@@ -1,3 +1,10 @@
-## ♡ ㅤWelcome !!
+ㅤㅤㅤ𝒲elcome ..
 
-<img width="426" height="426" alt="pink bow transparent icon" src="https://github.com/user-attachments/assets/a62f1304-6854-4289-8ecd-ba56bfb6c0f1" />
+
+ㅤㅤㅤㅤㅤ<img width="700" height="426" alt="pink bow transparent icon" src="https://i.imghippo.com/files/Qai3311Zak.jpg" />
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤTo my github !
+
+d
+ㅤㅤㅤㅤㅤㅤata being reworkedㅤㅤㅤstrawpㅤㅤㅤtiktok
