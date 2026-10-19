@@ -6,5 +6,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤTo my github !
 
-d
-ㅤㅤㅤㅤㅤㅤata being reworkedㅤㅤㅤstrawpㅤㅤㅤtiktok
+
+ㅤㅤㅤㅤㅤㅤ[ata](https://novak.atabook.org)ㅤㅤㅤstrawpㅤㅤㅤ[tiktok](https://www.tiktok.com/@..kai033?is_from_webapp=1&sender_device=pc)
