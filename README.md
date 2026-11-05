@@ -14,3 +14,6 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝓓on't friend me (unless on pony town) unless I friend you first.
+
+<img width="227" height="321" alt="image" src="https://github.com/user-attachments/assets/c9e93308-d92a-4ead-8e41-773a9ca72cd4" />
+
